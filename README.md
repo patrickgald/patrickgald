@@ -7,7 +7,7 @@
 
 
 
-🔎 sobre mim: Graduando em Engenharia de Software pela PUC Minas, 23 anos e grande incentivador do uai e do pão de queijo
+🔎 sobre mim: Graduado em Engenharia de Software pela PUC Minas, 24 anos e grande incentivador do uai e do pão de queijo
 
 📫 como falar comigo: [LinkedIn](https://www.linkedin.com/in/patrickgaldino/)
 
